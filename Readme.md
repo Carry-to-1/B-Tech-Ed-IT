@@ -14,4 +14,4 @@ Graduates gain competencies in both technical-vocational education and informati
 
 Radiant College : https://www.radiantcollege.edu.np/
 
-Enrolled in : October 2025 
+Enrolled date : October 2025 
