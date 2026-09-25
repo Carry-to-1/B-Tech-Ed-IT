@@ -16,6 +16,9 @@ Radiant College : https://www.radiantcollege.edu.np/
 
 Enrolled date : October 2025 
 
+-------------------------------------
+
+
 #### First Semester **October - March 2025**
 - [x] EDUC 100: The Teaching Profession
 - [x] VPED 100 Principles and methods of technical instruction
