@@ -48,4 +48,4 @@ Enrolled date : October 2025
 
 #### Upto 8th sem + 9th sem for BIT (Dual degree)  
 
-**Want to deep drive ~ [Syallbus](https://www.radiantcollege.edu.np/home/download)**
+**Want to deep drive ~ All the Syallbus are above Semester-wise If you are interested to verify then [click here](https://www.radiantcollege.edu.np/home/download)**
