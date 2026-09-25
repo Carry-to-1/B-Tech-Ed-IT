@@ -1,4 +1,4 @@
-# B Tech Ed IT & BIT
+# B Tech Ed IT & BIT (Dual Degree)
 
 -----------------
 About My Degree
